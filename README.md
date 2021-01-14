@@ -1,2 +1,3 @@
 # Hello-World
 I want to learn how to use this thing...
+I created an account here because I want to know how to bloody download Aegisub from this site since the original site is down. Other sites provide a downloading option, but they're sketchy.
